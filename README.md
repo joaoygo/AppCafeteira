@@ -73,7 +73,7 @@ cart (tabela 2 - Não precisa está preenchida mas necessita está preparada par
 
 ## Video de demostração
 
-https://www.linkedin.com/in/joaoygo/
+[https://www.linkedin.com/in/joaoygo/](https://www.linkedin.com/posts/joaoygo_ol%C3%A1-pessoal-estou-muito-animado-em-compartilhar-activity-7166813184232824832-FRqy?utm_source=share&utm_medium=member_desktop)
 
 ## Recursos
 
